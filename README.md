@@ -2,6 +2,6 @@
 
 Você também pode me encontrar aqui!
 
-__Linkedin:__ [a link](https://www.linkedin.com/in/caio-willian-b4070ab6/)
+[__Linkedin:__](https://www.linkedin.com/in/caio-willian-b4070ab6/)
 
 
