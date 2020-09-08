@@ -1,6 +1,6 @@
-### Olá, __Caio__ 👋
+### Olá, __Caio__ 👋😃
 
-🇧🇷 Brasil - SP
+🇧🇷 Brasil - SP 
 
 Me encontre aqui!
 
